@@ -1,0 +1,2 @@
+<meta name="google-site-verification" content="Wj91BO1pqKpmm9lXyUmqSgXnuJel4U3FQyyd-Ppopgo" />
+<script data-ad-client="ca-pub-7706731424276603" async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
